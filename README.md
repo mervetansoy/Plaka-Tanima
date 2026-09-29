@@ -1,1 +1,1 @@
-# Plaka-Tan-ma
+# Plaka-Tanıma
